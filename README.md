@@ -7,5 +7,19 @@ Its all about my experience(success and failures ) and knowledge which I gained 
       3. YOu wil found those sectors alos which are not progressing right now , but there is huge  probability that they will progress in the future . 
       4. This is not a battle of predictions all is the battle of analysis. The one who analyses better is going to be the winner of the game. So focus on analysis. 
       5. Now you can start investing in two situations 
-        
+          1. If you have lump sum( a big total of money)
+          2. You want to do investing in systematic way ( SIP) which you need to do every month.
+          3.
+      6. BUT KEEP THIS THING IN MIND THAT NEVER INVEST YOUR FULL SUM AT ONCE.TO GAIN HIGHER RETURNS. WHATEVER BE THE SITUATION.
+      7. Keep a good safe amount always with you. So that if you get huge loss(which some time makes your money negative ) you can copup with it. 
+      8. If you are a Newbie, in this field you should go with sips, but choose low sips, to gain expierence of market and then come back with the major amount 
+          but always when you have gained some experience. 
+      7. There are many websites which offer you for investment , in stock market,mutual funds as well as fds . But beaware they are there for business. 
+         so take close analysis and never go with the records of  a particular wesites. 
+         
+     8. If you have LUMP sum that will give most of the time a positive return but here i mean lump sum should be  a good amount(>100000)
+     
+     9. Some tips for smart investing which i follows or may i developed. 
+     
+    
       
