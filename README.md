@@ -25,7 +25,7 @@ Its all about my experience(success and failures ) and knowledge which I gained 
             This is the feature i like most.
      10.If you are going  to invest in high risk mutual funds you can see some time that your money is going at some time negative. 
          keep patience at such moment it will become positive . 
-     11. The U.S elections used to have great impact on indian markets.
+     11. The U.S elections used to have great impact on indian markets. 
      
      
     
