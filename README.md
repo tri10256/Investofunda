@@ -9,7 +9,7 @@ Its all about my experience(success and failures ) and knowledge which I gained 
       5. Now you can start investing in two situations 
           1. If you have lump sum( a big total of money)
           2. You want to do investing in systematic way ( SIP) which you need to do every month.
-          3.
+          
       6. BUT KEEP THIS THING IN MIND THAT NEVER INVEST YOUR FULL SUM AT ONCE.TO GAIN HIGHER RETURNS. WHATEVER BE THE SITUATION.
       7. Keep a good safe amount always with you. So that if you get huge loss(which some time makes your money negative ) you can copup with it. 
       8. If you are a Newbie, in this field you should go with sips, but choose low sips, to gain expierence of market and then come back with the major amount 
@@ -19,7 +19,11 @@ Its all about my experience(success and failures ) and knowledge which I gained 
          
      8. If you have LUMP sum that will give most of the time a positive return but here i mean lump sum should be  a good amount(>100000)
      
-     9. Some tips for smart investing which i follows or may i developed. 
+     9. Some tips for smart investing which i followed. 
+        1. If you are going to invest and you are choosing the sip  , then for gaining money on your rest amount keep your money in liquid funds.liquid funds gives higher retruns          then F.Ds
+          2. You can take out any amount of money at any time from liquid funds. 
+            This is the feature i like most. 
+     10.        
      
     
       
