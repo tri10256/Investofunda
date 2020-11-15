@@ -15,7 +15,7 @@ Its all about my experience(success and failures ) and knowledge which I gained 
       8. If you are a Newbie, in this field you should go with sips, but choose low sips, to gain expierence of market and then come back with the major amount 
           but always when you have gained some experience. 
       7. There are many websites which offer you for investment , in stock market,mutual funds as well as fds . But beaware they are there for business. 
-         so take close analysis and never go with the records of  a particular wesites. 
+         so take close analysis and never go with the  records of  a particular wesites. 
          
      8. If you have LUMP sum that will give most of the time a positive return but here i mean lump sum should be  a good amount(>100000)
      
