@@ -19,13 +19,14 @@ Its all about my experience(success and failures ) and knowledge which I gained 
          
      8. If you have LUMP sum that will give most of the time a positive return but here i mean lump sum should be  a good amount(>100000)
      
-     9. Some tips for smart investing which i followed. 
+     9. Some tips for smart investing which i followed.  
         1. If you are going to invest and you are choosing the sip  , then for gaining money on your rest amount keep your money in liquid funds.liquid funds gives higher retruns          then F.Ds
           2. You can take out any amount of money at any time from liquid funds. 
             This is the feature i like most.
      10.If you are going  to invest in high risk mutual funds you can see some time that your money is going at some time negative. 
          keep patience at such moment it will become positive . 
      11. The U.S elections used to have great impact on indian markets. 
+     
      
      
     
